@@ -1,4 +1,7 @@
-### Hi there 👋
+### helo evry111!!
+
+#### discord - lite#5979 (add me :3)
+####
 
 <!--
 **astr4lite/astr4lite** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
