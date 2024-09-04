@@ -1,8 +1,8 @@
 ### helo evry111!!
 
-#### discord - lite#5979 (add me :3)
+#### discord - l.te 
 ---
-im not very active here as i usually keep projects local but i will try and maek things i can publisize s00wn <333
+im not very active here as this is my alt 
 
 <!--
 **astr4lite/astr4lite** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
